@@ -2,7 +2,7 @@
 - 👀 I’m interested in bowling, hiking, fishing, learning
 - 🌱 I’m currently learning Software Development "full-stack"
 - 💞️ I’m looking to collaborate on N/A
-- 📫 How to reach me jessedoake91@gmail.com @jessedoake-discord
+- 📫 How to reach me jessedoake91@gmail.com -discord @jessedoake
 - 😄 Pronouns: Them/that/he/him
 - ⚡ Fun fact: I was born in Alaska!
 
